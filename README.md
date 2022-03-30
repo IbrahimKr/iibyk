@@ -1,7 +1,7 @@
 - 👤 Hi, I’m @iibyk
-- 👀 I’m interested in Cars, Games and Money
-- 🏦 I’m currently learning how to. get rich
-- 📫 How to reach me @ibibyyy on the gram
+- 👀 I’m interested in Females
+- 🏦 Gimme yo money
+- 📫 How to reach me @ibibyyy on the gram or just hit my line
 
 <!---
 iibyk/iibyk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
